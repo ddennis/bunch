@@ -12,4 +12,7 @@ http://theskimm.com/2014/11/03/skimm-for-november-4th-2
 
 
 
+### Online Medier:
+https://www.zetland.dk
+https://foljeton.dk
 
