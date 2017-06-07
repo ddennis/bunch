@@ -17,3 +17,6 @@ https://www.zetland.dk
 
 https://foljeton.dk
 
+
+### Pay walls
+http://www.niemanlab.org/2017/05/more-european-newspapers-are-charging-for-content-online-but-there-are-differences-by-country/
